@@ -1,7 +1,7 @@
 # Mehwish_Birthday
 Happy Birthday of precious 🎉 💕 Friend 🎈
 # Mehwish 😘 
-Open This Link : [A Small Wishing From Me](https://usernamezain.github.io/Sawera_Birthday/)
+Open This Link : [A Small Wishing From Me]([(https://usernamezain.github.io/Bestie_Birthday/)
 
 
 # Happy Birthday, Mishoo ❤️
