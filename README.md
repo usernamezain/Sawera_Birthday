@@ -1,4 +1,4 @@
-# Sawera_Birthday
+# Mehwish_Birthday
 Happy Birthday of precious 🎉 💕 Friend 🎈
 # Mehwish 😘 
 Open This Link : [A Small Wishing From Me](https://usernamezain.github.io/Sawera_Birthday/)
